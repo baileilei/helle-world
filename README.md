@@ -7,3 +7,6 @@ my name is geduo,i hope one day i could be a greate man. just keep foolish keep 
 
 
 i just wonder : how could i make some changes?  don't forget the pencil!!!
+
+
+third Make some change    ，why   ？  but  where is my dream home？
